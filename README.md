@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Y0bby254
-- 👀 I’m interested in ...c0mputer
+- 👀 I’m interested in ...cOmputer
 - 🌱 I’m currently learning ...in JKUAT B.SC AGRICUITURE 
 - 💞️ I’m looking to collaborate on ...COMPUTER AND AGRICULTURE PEOPLE
 - 📫 How to reach me ...hu27810599@gmail.com
